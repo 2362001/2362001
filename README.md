@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello, I am Sena from Viet Nam 👋
 
 <!--
 **2362001/2362001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
